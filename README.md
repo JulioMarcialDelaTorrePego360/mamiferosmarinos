@@ -1,1 +1,1 @@
-# Esta web trata sobre los mamífero smarinos
+# Esta web trata sobre los mamíferos marinos
